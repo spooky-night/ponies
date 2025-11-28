@@ -1,4 +1,5 @@
 # **loading data . . .**
+![Image of Vox during Hazbin Hotel season 1 song "Stayed Gone."](Untitled5_20251127185936.png)
 *hugs and cuddles are OK, expect them back if you do* || ~~afk often~~ whisper to interact || `typically on` [*emily*](https://imgur.com/a/RCjRCoD) `or` [**VOX**](https://imgur.com/a/RCjRCoD)\
 \
 **byf** : might make nsfw jokes ♱ might make kms/kys jokes ♱ uses tone indicators\
